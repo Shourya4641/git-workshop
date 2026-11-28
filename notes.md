@@ -1,4 +1,4 @@
-1. Favourite language:
+1. Favourite language: Spanish
 2. Something I want to build:
 3. Best movie ever:
 4. Coffee or tea:
